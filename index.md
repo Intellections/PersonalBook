@@ -1,6 +1,6 @@
 
 
-Read my thoughts [Common struggles of an uncommon man](https://github.com/Intellections/Writings/blob/main/index.md).
+Read my thoughts [Common struggles of an uncommon man](https://github.com/Intellections/PersonalBook/blob/gh-pages/Incidents.md).
 
 My mom was my favorite and still is, as a kid there were times I thought my father did not like me. My sister being the doll she is, was his favorite. I always felt she got more privileges’ than me. Be it toys, chocolates, clothes I was always the one to sacrifice. So naturally I had no love towards my dad as I did for my mom.<br>
 
