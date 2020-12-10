@@ -29,7 +29,7 @@ Incidents like these are many and so many more to come. Without me knowing I had
 
 The entire world would accept that Mother is an epitome of love as it is shown in every aspect of one’s life. But the love a father show’s is always hidden behind those same aspects. <br>
 
-Last but not the least, <b><i>A father may look like he is a Master but in reality, has, is and will always be his children’s Servant.</i></b> 
+Last but not the least, <b><i>A father may look like he is a Master but in reality, has, is and will always be his children’s Servant.</i></b> <br>
 
 With Love, <br>
 Pavan Kumar Venugopal
