@@ -4,7 +4,7 @@ My dad was hardworking, dedicated to his profession, a street smart and unquesti
 
 As a boy I was none of this and all those people who knew my father were disappointed in seeing me as his son. No matter what I tried he was a little too much for me to scale up to. This was the reason I never wanted to be with him and chose to spend most of my time with mom. But things changed, it was no big bang but it happened gradually. It was only when I reflected several years back I was able to understand how we both transformed into completely different men from what we were.<br>
 
-Read excerpts from my writeup collection  [Common struggles of an uncommon man](incidents.html).
+Read excerpts from my writeup collection  [Common struggles of an uncommon man](Incidents.md).
 
 Incidents like these are many and so many more to come. Without me knowing I had leaning towards my father, started feeling sad when he asks me to do something as opposed to the hard orders he used to put through. Started protecting him, I could take someone disrespecting me but if any slight disrespect to my father and mother no matter how many they are or how big they be, I would retaliate with no hesitation. Every parent will have a slight inclination towards a kid, in my case Mom favored me and Dad, my sister. Its just a preference but they have never been partial in anyway.<br>
 
