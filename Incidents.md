@@ -1,3 +1,5 @@
+<head><center>Common Struggles of an Uncommon man</head>
+
 <b>Father’s first success comes at his son’s first failure:</b><br>
 
 In my first job I had developed a POC but on the previous day of demo it stopped working, I slogged all night and with no hope I returned one of many calls dad had made. With limited understanding of what I was saying he said; <i>"If this does not work, it’s not end of the world"</i> giving a small pause for me to pull my confidence, he continued, <i>"If it is still not working, you have not tried everything"</i> and he disconnected the call. The POC worked and demo did not happen – details some other time.<br>
