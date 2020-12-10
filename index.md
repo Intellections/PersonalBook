@@ -26,8 +26,8 @@ While traveling to Paris, I had to face some hard questions during immigration a
 <br>
 Incidents like these are many and so many more to come. Without me knowing I had started loving my father. I feel sad when he asks me to do something as opposed to the hard orders he used to put through. I can take someone disrespecting me but my father and mother no matter how many they are or how big they be, I will retaliate. Me myself being a father now I realize how a father should be. Parents will have a slight inclination towards one kid, in our case my mom favored me and dad my sister. Its just a preference but have never been partial in anyway.<br>
 The entire world would accept that Mother is an epitome of love as it is shown in every aspect of one’s life. But the love a father show’s is always hidden behind those same aspects. <br>
-Last but not the least, <b><i>A father may look like he is a Master but in reality, has, is and will always be his children’s Servant.</i></b>  
+Last but not the least, <b><i>A father may look like he is a Master but in reality, has, is and will always be his children’s Servant.</i></b> 
 
-                                                                                                     With Love,<br>
-                                                                                                     Pavan Kumar Venugopalachari
+With Love, <br>
+Pavan Kumar Venugopal
                                                                                                                                                       
