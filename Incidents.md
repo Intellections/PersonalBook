@@ -1,4 +1,4 @@
-<head><center>Common Struggles of an Uncommon man</head>
+<head><center>Common Struggles of an Uncommon man</center></head>
 
 <b>Father’s first success comes at his son’s first failure:</b><br>
 
